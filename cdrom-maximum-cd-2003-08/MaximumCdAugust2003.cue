@@ -1,0 +1,1 @@
+../.git/annex/objects/mk/j6/URL-s88--http&c%%archive.org%download%cdrom-maximum-cd-2003-08%MaximumCdAugust2003.cue/URL-s88--http&c%%archive.org%download%cdrom-maximum-cd-2003-08%MaximumCdAugust2003.cue

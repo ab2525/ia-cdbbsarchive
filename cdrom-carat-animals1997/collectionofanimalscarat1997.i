@@ -1,0 +1,1 @@
+../.git/annex/objects/jk/77/URL-s411924480--http&c%%archive.org%download%cdrom-carat-animals1997%collectionofanimalscarat1997.i/URL-s411924480--http&c%%archive.org%download%cdrom-carat-animals1997%collectionofanimalscarat1997.i

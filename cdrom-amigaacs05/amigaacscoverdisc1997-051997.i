@@ -1,0 +1,1 @@
+../.git/annex/objects/ZX/qM/URL-s627566592--http&c%%archive.org%download%cdrom-amigaacs05%amigaacscoverdisc1997-051997.i/URL-s627566592--http&c%%archive.org%download%cdrom-amigaacs05%amigaacscoverdisc1997-051997.i
